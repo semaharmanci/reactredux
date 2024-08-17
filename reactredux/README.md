@@ -1,0 +1,1 @@
+<img src="./public/Zight Recording 2024-08-17 at 09.30.58 PM.gif">
